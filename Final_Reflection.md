@@ -49,5 +49,5 @@ Most likely. I do admit not all of my codes are A work and that was due to some 
 Yes!
 
 ## 📣 Final Thoughts
-I am proud of my performance this semester. I had a lot of challenges like making sure I came on time, submitting the homework by the deadline, and asking for clarification so I can avoided repeated mistakes. I navigated the challenges well by asking for help, reading materials and additional exercises and understanding which pact I broke so I would not do it again in future assignments. I am proud of only missing one assignment and that the assignements that were completed were done on time. I am proud of how vocal I was during the class meetings.
+I am proud of my performance this semester. I had a lot of challenges like making sure I came on time, submitting the homework by the deadline, and asking for clarification so I can avoided repeated mistakes. I navigated the challenges well by asking for help, reading materials and additional exercises and understanding which pact I broke so I would not do it again in future assignments. I am proud of only missing one assignment and that the assignements that were completed were done on time. I am proud of how vocal I was during the class meetings. I purose a B for my final grade.
 
